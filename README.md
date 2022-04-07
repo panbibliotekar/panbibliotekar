@@ -2,5 +2,5 @@
 - 👀 I’m interested in Library Science
 - 🌱 I’m currently learning R
 - 💞️ I’m looking to collaborate on Scientometrics research
-- 📫 How to reach me pan.bibliotekar@gmail.com
+- 📫 How to reach me? - pan.bibliotekar@gmail.com
 - 🚢 Russian warship, go fuck yourself!
